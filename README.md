@@ -1,4 +1,4 @@
-Self introduction (Chinese Version)
+Self introduction (Two versions are available, Chinese and English, here I show Chinese Version first since that's my mother language, if u want to look at English Version just scroll down) 
 
 1.关于我
 
@@ -74,7 +74,7 @@ Hi！我是Umber，我从2023年开始玩第五人格，以下分别是我国服
 
 3.6 为什么想到写这个？
 
-反正开学后还得做自我介绍，还不如现在就写一个，到时候丢给他们看得了🙄哦不，一想到除了这个Chinese Version还要再单独开一个English Version就淡淡的死了....不过我是不会在这里的Self intro里放我的真名的🤫
+反正开学后还得做自我介绍，还不如现在就写一个，到时候丢给他们看得了🙄哦不，一想到除了这个Chinese Version还要再单独写一个English Version就淡淡的死了....不过我是不会在这里的Self intro里放我的真名的🤫
 
 4.常见问题
 
@@ -122,4 +122,78 @@ Umber
 
 一位第五人格玩家
 
-注：This self introduction is Chinese Version, I'll create the different English Version later, the release date I have no idea.But more general than this one. This post blends my personal intersts more so Idk whether foreigners or outsiders could understand completely.Stay tunned！
+注：This self introduction is Chinese Version, I'll create the different English Version later, the release date I have no idea.But more general than this one. This post blends my personal intersts more so Idk whether foreigners or outsiders could understand completely.Stay tunned！2026/06/23 12：00（UTC+8：00）
+
+<img width="4200" height="2970" alt="律師" src="https://github.com/user-attachments/assets/d9fb876b-6eb1-4c6a-8648-9886aa2810e7" />
+
+Self-Intro (English Version)
+
+Compared to the Chinese Version, I don't have much to say here, so some contents may similar to the Chinese ones🤔
+
+Hi, my name is Umber, also you could call me 暮影 (Mù yǐng) if you can type Chinese. Obviously, that's not my real name😄 
+
+No plan for dating ❗❗❗I am a very straightforward person, listening to music, singing, writing, playing games (Identity V). I also enjoy discussing
+topics related to humanities, politics, and history. 
+
+If you want to gift me, Discord Nitro, Gemini Plus/Pro/Ultra may be the best, but I suppose I'm just daydreaming😆
+
+<img width="1450" height="984" alt="daydreaming" src="https://github.com/user-attachments/assets/160d3fc8-2529-4394-9c53-caf797b68cfe" />
+<img width="1883" height="910" alt="image" src="https://github.com/user-attachments/assets/93cca5ca-830a-45cb-890c-4567e2a94270" />
+
+Freshman ready for colledge, 5-year program leading to a Master Degree of Dental Medicine (D.M.D) degree, I'm dead.
+
+That's it! If you'd like to chat with me or play idv, follow my accounts below:
+
+1.Discord
+<img width="1129" height="1920" alt="6d4a9fd27f41fef800731edb13ed8808" src="https://github.com/user-attachments/assets/45be3dd6-10c4-4eef-a73e-977d7e8398a0" />
+2.Instagram
+<img width="1080" height="1920" alt="c41de3ff95e0f740e4d9adf08f554ba4_720" src="https://github.com/user-attachments/assets/385b5dc1-f82d-49e8-8788-603ef89b1912" />
+3.Twitter(X)
+<img width="1123" height="1920" alt="b22abafc3ba6b54a41330458b124307d" src="https://github.com/user-attachments/assets/627e34a7-c734-442f-9378-98dae1ae9c42" />
+4.YouTube
+
+URL: https://youtube.com/@umber_and_noctis?si=RaqjdmyDoh1U3Z0z
+
+All of my active accounts are placed in my channel description, go and check for detailed info:
+<img width="667" height="785" alt="image" src="https://github.com/user-attachments/assets/15b4e771-aa48-4550-ac5f-3361b8616970" />
+
+Q1: What is your gender?
+
+I am male.
+
+Q2: Can I add your social media? When do you reply to messages?
+
+Sure, absolutely—though I do keep my work and personal social media accounts separate, so I don't use my work account to add online friends!
+
+"I won't offend unless I am offended; if I am offended, I will certainly strike back." Mutual respect, please. 🙏
+
+Q3: It seems our views on gaming, gender-related issues, AI content, or politics differ. Can I still follow or make friends with you?
+
+Of course! You have every right to hold different views; while I might not agree with them, I respect them. I feel it is necessary to outline my stance on these topics to avoid any unnecessary friction during our interactions 🫨. Again, plz remember: all conversations should be grounded in mutual respect🙏!
+
+Views on gaming: I'm very laid-back about this, differences don't matter me more; for me, it’s all about having fun.
+
+Gender-related issues: I respect the science here, biological males are male, and biological females are female. However, I am open to rational discussion, provided it remains respectful.
+
+AI content: Neutral; I have no specific stance.
+
+Political stance: I believe both sides of the Taiwan Strait belong to one China (though I don't care to specify exactly"which"China). I support most policies of the CPC—I suppose that makes me what critics call a "Little Pink" (pro-government supporter)😄. Id care. If your political views differ from mine, please communicate rationally. If necessary, feel free to let me know you'd like to end the conversation.
+
+<img width="4500" height="2351" alt="清明雨落，心灯长明。" src="https://github.com/user-attachments/assets/98f31ec9-7da4-475c-a2d4-ba514702e596" />
+
+Finally, I would like to conclude this long self-introduction with a short passage. It is from the description of hunter Axe Boy's A costume-Nature of Good and Evil
+
+"Human nature is inherently complex. Villainy and greatness, malice and kindness, betrayal and loyalty-these opposing forces can coexist in the same heart without contradiction."
+
+<img width="1920" height="991" alt="73b0771cedbe5d547104e17ff6cee96d" src="https://github.com/user-attachments/assets/13a203a0-0ea4-4a45-8886-0267d2346215" />
+
+Umber
+
+A man 
+
+Crazy Identity V player
+
+Lastest Edition: 2026/06/26 18:35 (UTC+8:00)
+
+
+
